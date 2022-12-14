@@ -1,3 +1,5 @@
+* **[-  +Aesthetic](https://drive.google.com/file/d/1tmGgIkNJt4Npzqp1Z3HWhFjSj2ajNc8S/view?usp=share_link)**
+![](https://cdn.discordapp.com/attachments/858575404083707986/1052576214818242600/screenshot002.jpg)
 * **[Mirror Mix - Zylice](https://www.dropbox.com/s/81ck9alr0n5426a/Mirror%20Mix%20-%20Zylice.osk?dl=0)**
 ![](https://osu.ppy.sh/ss/17941249/d1cf)
 * **[凱哥同款SKIN](https://drive.google.com/file/d/1iB2mTcGI3KqUh6-nBvi4k7tLfTGEPG1l/view)**
